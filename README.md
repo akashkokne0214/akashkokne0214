@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/akashkokne0214](https://github.com/akashkokne0214)
 
-- 📫 How to reach me **akashkokne1402@gmail.com**
+- 📫 How to reach me **akashkokne0214@gmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
